@@ -4,5 +4,5 @@
 - 💞️ I'm looking to collaborate with any that wants to build new Blockchain technologies.
 - 📫 How to reach me ...
 
-* goviedo@gmx.com
-* goviedo@sevenit.cl
+* goviedo.sevenit@gmail.com
+* +56963723603
